@@ -8,8 +8,6 @@
 
 **如果让我先选套餐：轻度使用看100GB，每天用看200GB，视频比较多就重点比较350GB。** 先把流量选对，再用自己的网络筛出常用节点，购买判断会清楚很多。
 
-<a href="https://homes.jif9.net/?code=FK2b" rel="sponsored nofollow"><strong>查看疾风云当前套餐与结算价格 →</strong></a>
-
 ## 疾风云官网地址与注册入口
 
 疾风云机场官网地址：<a href="https://homes.jif9.net/?code=FK2b" rel="sponsored nofollow"><strong> → 点击访问疾风云官网</strong></a>
@@ -166,4 +164,4 @@ ChatGPT、Claude Code 和 Midjourney 这几年也逐渐变成我的高频用途�
 
 先选一个符合自己用量的档位，用自己的宽带确认常用服务和晚间体验。用得顺手，再续费或考虑包年优惠，选择会更踏实。
 
-<a href="https://homes.jif9.net/?code=FK2b" rel="sponsored nofollow"><strong>进入疾风云官网，查看当前套餐与优惠 →</strong></a>
+<a href="https://homes.jif9.net/?code=FK2b" rel="sponsored nofollow"><strong>点击进入疾风云官网，查看当前套餐与优惠 →</strong></a>
